@@ -1,6 +1,6 @@
 # GIZMO
 Property Management Product
-Fatsie: That's no moon...it's a space station
-Fatsie: "You have chosen...wisely."
-Fatsie: "You have chosen...wisely."
-"KHANNN!!!!"
+I need more toys to play with
+Can someone please bring me a cup of coffee
+I dislike it when people like their lips
+"KHAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAANNN!!!!"
